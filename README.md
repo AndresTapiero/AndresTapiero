@@ -1,4 +1,4 @@
-### Hello, My name is Andrés Tapiero 👋
+### Hello, I'm Andrés Tapiero 👋
 ----
 
 
